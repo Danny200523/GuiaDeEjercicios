@@ -27,3 +27,15 @@ El entrenamiento funcional consiste en ejercicios que imitan movimientos natural
 - Trabaja la estabilidad y equilibrio: Incluye ejercicios unilaterales o con plataformas inestables.
 
 - Controla la respiración: Exhala al hacer el esfuerzo e inhala en la fase de relajación.
+
+## Consejos y Advertencias
+
+- Prioriza la técnica sobre la velocidad o intensidad para evitar lesiones.
+
+- Ajusta la dificultad según tu nivel: No sobrecargues el entrenamiento si eres principiante.
+
+- Descansa lo necesario entre ejercicios: Evita la fatiga excesiva.
+
+- Hidrátate adecuadamente antes, durante y después del entrenamiento.
+
+- Escucha a tu cuerpo: Si sientes dolor, detente y consulta a un profesional.
