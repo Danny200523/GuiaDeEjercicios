@@ -28,4 +28,14 @@ El yoga es una práctica física, mental y espiritual que combina posturas, resp
 
 - Finaliza con relajación: Termina la sesión con una postura de descanso, como Savasana (postura del cadáver).
 
+## Consejos y Advertencias
 
+- No fuerces las posturas: Avanza a tu ritmo y evita sobrecargar el cuerpo.
+
+- Mantén una respiración constante y profunda: La respiración es clave en la práctica de yoga.
+
+- Utiliza accesorios si es necesario: Bloques, cinturones y mantas pueden ayudar a mejorar la postura y la comodidad.
+
+- Sé constante en la práctica: La regularidad es clave para notar mejoras.
+
+- Consulta a un profesional si tienes lesiones: Asegúrate de adaptar las posturas según tus necesidades.
