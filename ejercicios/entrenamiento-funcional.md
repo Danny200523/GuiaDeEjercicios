@@ -15,3 +15,15 @@ El entrenamiento funcional consiste en ejercicios que imitan movimientos natural
 - Optimiza la movilidad y postura corporal.
 
 - Aumenta la quema de calorías y el gasto energético.
+
+## Instrucciones
+
+- Calentamiento previo: Realiza 5-10 minutos de movilidad articular y ejercicios cardiovasculares suaves.
+
+- Ejecuta movimientos compuestos: Incorpora ejercicios como sentadillas, burpees, planchas y saltos.
+
+- Utiliza el peso corporal o implementos: Puedes usar pesas, bandas elásticas, pelotas medicinales o kettlebells.
+
+- Trabaja la estabilidad y equilibrio: Incluye ejercicios unilaterales o con plataformas inestables.
+
+- Controla la respiración: Exhala al hacer el esfuerzo e inhala en la fase de relajación.
