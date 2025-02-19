@@ -15,3 +15,15 @@ El CrossFit es un entrenamiento de alta intensidad que combina ejercicios de lev
 - Desarrolla la coordinación, la agilidad y el equilibrio.
 
 - Potencia la mentalidad de superación y el trabajo en equipo.
+
+## Instrucciones
+
+- Realiza un calentamiento adecuado: Incluye movilidad articular, ejercicios cardiovasculares y estiramientos dinámicos.
+
+- Sigue una rutina estructurada: Combina levantamientos, ejercicios de peso corporal y circuitos de alta intensidad.
+
+- Mantén una técnica correcta: La ejecución adecuada es clave para evitar lesiones.
+
+- Regula la intensidad: Adapta los ejercicios a tu nivel y aumenta la dificultad progresivamente.
+
+- Finaliza con estiramientos y recuperación: Reduce la tensión muscular y favorece la recuperación.
