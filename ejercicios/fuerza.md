@@ -26,3 +26,14 @@ Los ejercicios de fuerza fortalecen los músculos usando peso corporal, pesas o 
 
 - Finaliza con estiramientos
 
+## Consejos y Advertencias
+
+- Prioriza la técnica sobre el peso para evitar lesiones.
+
+- No entrenes los mismos grupos musculares dos días seguidos para permitir la recuperación.
+
+- Si sientes dolor agudo, detente inmediatamente y consulta a un profesional.
+
+- Mantén una respiración controlada: Exhala al hacer el esfuerzo y inhala en la fase de relajación.
+
+- Hidrátate adecuadamente antes, durante y después del entrenamiento.
