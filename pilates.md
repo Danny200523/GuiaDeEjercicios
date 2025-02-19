@@ -15,3 +15,15 @@ Pilates es un método de entrenamiento que se enfoca en fortalecer el núcleo, m
 - Ayuda a reducir el estrés y mejorar la concentración.
 
 - Potencia la coordinación y el equilibrio.
+
+## Instrucciones
+
+- Prepara un espacio adecuado: Busca un lugar cómodo y con suficiente espacio para moverte libremente.
+
+- Realiza un calentamiento previo: Activa el cuerpo con movimientos suaves y ejercicios de movilidad articular.
+
+- Ejecuta los ejercicios con control: Mantén un movimiento fluido y consciente en cada repetición.
+
+- Concéntrate en la respiración: Inhala por la nariz y exhala por la boca coordinando con cada movimiento.
+
+- Mantén una alineación adecuada: Evita tensiones innecesarias y trabaja con precisión.
