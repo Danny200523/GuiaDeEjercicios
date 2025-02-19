@@ -16,3 +16,14 @@ El boxeo es un deporte y ejercicio de alta intensidad que combina fuerza, resist
 
 - Ayuda a la quema de calorías y al control del peso corporal.
 
+# Instrucciones
+
+- Realiza un calentamiento adecuado: Incluye saltos, movilidad articular y estiramientos dinámicos.
+
+- Aprende la postura básica: Mantén los pies separados, rodillas ligeramente flexionadas y las manos protegiendo el rostro.
+
+- Practica los golpes básicos: Directo, gancho, uppercut y jab con movimientos controlados.
+
+- Incluye desplazamientos: Muévete constantemente para mejorar la defensa y el ataque.
+
+- Finaliza con estiramientos y recuperación: Ayuda a evitar lesiones y mejorar la flexibilidad.
