@@ -27,3 +27,15 @@ Los ejercicios de flexibilidad mejoran la movilidad de las articulaciones y la e
 - Respira de forma controlada: Inhala antes de empezar el estiramiento y exhala al mantenerlo.
 
 - Estira todos los grupos musculares: No te enfoques solo en una zona del cuerpo.
+
+## Consejos y Advertencias
+
+- No estires en frío: Es importante calentar antes de comenzar.
+
+- Evita los rebotes: Realiza estiramientos estáticos y controlados.
+
+- Si sientes dolor, detente inmediatamente: No fuerces demasiado los músculos.
+
+- Hazlo de forma regular: La flexibilidad mejora con la práctica constante.
+
+- Hidrátate adecuadamente: Mantenerse bien hidratado favorece la elasticidad muscular.
