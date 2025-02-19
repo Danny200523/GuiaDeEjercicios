@@ -27,3 +27,17 @@ El boxeo es un deporte y ejercicio de alta intensidad que combina fuerza, resist
 - Incluye desplazamientos: Muévete constantemente para mejorar la defensa y el ataque.
 
 - Finaliza con estiramientos y recuperación: Ayuda a evitar lesiones y mejorar la flexibilidad.
+
+## Consejos y Advertencias
+
+- Usa el equipo de protección adecuado: Guantes, vendas y protector bucal son esenciales.
+
+- No descuides la técnica: Evita golpear con el codo extendido completamente para prevenir lesiones.
+
+- Mantente hidratado: Bebe suficiente agua antes, durante y después del entrenamiento.
+
+- Respeta los tiempos de descanso: No sobreentrenes para evitar fatiga excesiva.
+
+- Entrena bajo supervisión si eres principiante: Un entrenador puede corregir errores y mejorar tu técnica.
+
+
