@@ -15,3 +15,17 @@ El yoga es una práctica física, mental y espiritual que combina posturas, resp
 - Favorece la concentración y la claridad mental.
 
 - Estimula la circulación sanguínea y la salud cardiovascular.
+
+## Instrucciones
+
+- Elige un ambiente tranquilo: Busca un espacio sin distracciones donde puedas concentrarte.
+
+- Realiza un calentamiento suave: Moviliza las articulaciones y estira suavemente antes de iniciar.
+
+- Practica posturas progresivamente: Comienza con posturas básicas como la montaña, el perro boca abajo o la cobra.
+
+- Concéntrate en la respiración: Inhala y exhala de manera controlada para mejorar la conexión cuerpo-mente.
+
+- Finaliza con relajación: Termina la sesión con una postura de descanso, como Savasana (postura del cadáver).
+
+
