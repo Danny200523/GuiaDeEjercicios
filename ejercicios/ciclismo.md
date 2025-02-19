@@ -27,3 +27,15 @@ El ciclismo es un ejercicio cardiovascular que se practica en bicicleta, ya sea 
 - Regula la intensidad: Alterna entre pedaleo suave y sesiones de mayor esfuerzo para mejorar el rendimiento.
 
 - Finaliza con estiramientos: Dedica unos minutos a estirar los músculos de las piernas y la espalda baja.
+
+## Consejos y Advertencias
+
+- Usa el equipo adecuado: Un casco, guantes y ropa cómoda pueden mejorar la seguridad y comodidad.
+
+- Hidrátate adecuadamente: Bebe agua antes, durante y después del ejercicio.
+
+- Respeta las normas de tránsito: Si practicas ciclismo en exteriores, sigue las señales de tráfico y mantente atento al entorno.
+
+- Evita el sobreesfuerzo: Aumenta la intensidad de manera gradual para evitar lesiones.
+
+- Revisa tu bicicleta regularmente: Asegúrate de que los frenos, neumáticos y cambios estén en buen estado.
