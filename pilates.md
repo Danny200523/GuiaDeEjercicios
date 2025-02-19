@@ -27,3 +27,15 @@ Pilates es un método de entrenamiento que se enfoca en fortalecer el núcleo, m
 - Concéntrate en la respiración: Inhala por la nariz y exhala por la boca coordinando con cada movimiento.
 
 - Mantén una alineación adecuada: Evita tensiones innecesarias y trabaja con precisión.
+
+## Consejos y Advertencias
+
+- No fuerces los movimientos: Aumenta la intensidad de forma progresiva según tu capacidad.
+
+- Mantén el abdomen activado: La fuerza del núcleo es clave en Pilates.
+
+- Usa una colchoneta adecuada: Brinda soporte y comodidad a la columna vertebral.
+
+- Sé constante en la práctica: La mejora en fuerza y flexibilidad requiere regularidad.
+
+- Consulta a un profesional si tienes lesiones: Asegúrate de realizar modificaciones según tu condición física.
